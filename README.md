@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Bishop2592
-- 👀 I’m interested in WEBSITE DEVELOPMENT
-- 🌱 I’m currently learning WEBSITE DEVELOPMENT
-- 💞️ I’m looking to collaborate on WEBSITE DEVELOPMENT
+- 👀 I’m a WEBSITE DESIGNER 
+- 🌱 I can work away from Home and Remotely 
+- 💞️ I’m looking to collaborate on WEBSITE Development /Designing 
 - 📫 How to reach me 09027703412 ON WHATSAPP and bishopsamuel1997@gmail.com
 
 <!---
